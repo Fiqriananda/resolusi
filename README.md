@@ -1,0 +1,2 @@
+# resolusi
+Repository Fiqri Ananda
